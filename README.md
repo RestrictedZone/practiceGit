@@ -1,8 +1,18 @@
-# practceGit
+# prcticeGit
 
-asdf
-fefefe
 
+as
 df
-e
+asd
+f
+w
+ef
+w
+f
+azsd
+f
+a
+we
+f
 
+바꿧다
